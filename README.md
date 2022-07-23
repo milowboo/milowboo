@@ -1,4 +1,5 @@
 - HOWDDY IM MILO!!
 - i am intrested in women. /hj
 - currently learning on how to be normal
-- ect..
+- she/they
+- ect...
